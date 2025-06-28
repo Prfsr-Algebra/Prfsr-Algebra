@@ -31,7 +31,7 @@ Reach me at: sulayman.m.f@gmail.com
 
 ## Get in Touch 📬
 
-- **[LinkedIn]**(https://www.linkedin.com/in/sulaymanmf)
-- **[Twitter]**(https://x.com/SulaymanMF)
+- (https://www.linkedin.com/in/sulaymanmf)
+- (https://x.com/SulaymanMF)
 
 
